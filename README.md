@@ -23,7 +23,8 @@ Salut ! Je suis Ala Dachraoui, un étudiant passionné de sécurité des réseau
 
 📷 Suivez-moi sur [Facebook](https://www.facebook.com/alaadachraui.dachraui) pour des mises à jour visuelles de mes projets.
 
-N'hésitez pas à explorer mes projets et à me contacter si vous souhaitez en savoir plus ou discuter de collaborations potentielles. Je suis ouvert à de nouvelles opportunités et à l'apprentissage continu. 😊
+N'hésitez pas à explorer mes projets et à me contacter sur [LinkedIn](https://www.linkedin.com/in/alaa-dachraoui-143b70190?utm_source=share&utm_campaign=share_via&utm_content=profile&utm_medium=ios_app4) si vous souhaitez en savoir plus ou discuter de collaborations potentielles. Je suis ouvert à de nouvelles opportunités et à l'apprentissage continu. 😊
+
 
 </br>
 <p align="center">
